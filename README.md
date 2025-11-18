@@ -1,2 +1,2 @@
 # Ilost3000geo
-I lost3000 geo in hollow knight :sob:
+I lost 3000 geo in hollow knight :sob:; ik ik very sad
